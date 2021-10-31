@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- The innovator's dilemma
+- The world is flat
+- Homo Deus: a brief history of tomorrow
