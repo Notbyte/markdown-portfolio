@@ -1,0 +1,3 @@
+- The innovator's dilemma
+- The world is flat
+- Homo Deus: a brief history of tomorrow
